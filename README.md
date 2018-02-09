@@ -1,2 +1,5 @@
 # hru-hru
-oink oink
+
+oink oink, peasants 
+
+the mighty hrushka is here to claim your, soon muddy, soul
