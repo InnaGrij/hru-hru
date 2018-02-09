@@ -2,4 +2,4 @@
 
 oink oink, peasants 
 
-the might hrushka is here to claim your, soon muddy, soul
+the mighty hrushka is here to claim your, soon muddy, soul
